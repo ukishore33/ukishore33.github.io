@@ -1,2 +1,2 @@
-<meta http-equiv="refresh" content="0; URL='https://linktr.ee/ukishore8133'"/>
+<meta http-equiv="refresh" content="0; URL='https://kishore-data-strategist.me/Portfolio/'"/>
 
